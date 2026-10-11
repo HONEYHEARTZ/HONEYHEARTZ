@@ -1,12 +1,10 @@
-![Mijn Afbeelding](https://user27429.na.imgto.link/public/20260919/1000024239.avif)
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=✚།༙&color=CE2361&style=square&abbreviated=true" alt="Profile Views"/>
 
+ 
+ <p align="center">  
 
-![Alt-tekst](https://cdn.phototourl.com/free/2026-09-19-908e7b02-6a42-4ed8-a667-34e8bceb1ae8.png)
-
-   
 
 <div align="center">
   <details>
@@ -28,19 +26,3 @@
 
 
 
-
-</details>
-
-$\color{#CE2361}\text{íძk}$ $\color{#C1557E}\text{ᥕհᥲ𝗍}$ $\color{#C75E6D}\text{mօძᥱ}$ $\color{#A27886}\text{Ե᥆}$
-$\color{#A27886}\text{ɾᥱcᥴ (◜◡༎ຶ)}$
-
-<p align="center">
-  <a href="https://cybrangel.atabook.org"><img src="https://cdn.phototourl.com/free/2026-09-19-31faddc2-b7e1-41c7-8866-a6612dec6bd7.png" width="40%" /></a>
-  <a href="https://pronouns.cc/@CYBRGHOUL"><img src="https://cdn.phototourl.com/free/2026-09-19-70431c1a-bc01-4428-b6d3-aeceebfd605c.png" width="40%" /></a>
-  <br><br>
-  <a href="https://guns.lol/kittenclaws"><img src="https://cdn.phototourl.com/free/2026-09-19-fcb96125-16ab-4d9e-b8f9-b5d2b8ddda80.png" width="40%" /></a>
-</p>
-
-
-
-![Mijn Afbeelding](https://user27429.na.imgto.link/public/20260919/1000024240.avif)
