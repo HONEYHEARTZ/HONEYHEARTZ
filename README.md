@@ -8,7 +8,7 @@
  
 
  <p align="center">  
- <a href="https://cybrangel.atabook.org/">ata sign dis nyeowww</a>
+ <a href="https://punkster.atabook.org/">ata sign dis nyeowww</a>
 <p align="center">  
  <a href="https://pronouns.cc/@CYBRGHOUL/">boiii check me out nyeowww</a>
 <div align="center">
