@@ -8,11 +8,13 @@
  
 
  <p align="center">  
-   <a href="https:/atabook.org/cybrangel">ata</a>  
-
+ <a href="https://cybrangel.atabook.org/">ata sign dis nyeowww</a>
+<p align="center">  
+ <a href="https://pronouns.cc/@CYBRGHOUL/">boiii check me out nyeowww</a>
 <div align="center">
-  <details>
-<summary><b> Եᥲ⍴ㅤ 2ㅤ sᥱᥱㅤ ᥆᥆m𝖿sㅤ</b></summary>
+ 
+   <details>
+<summary><b> oofmies~~ㅤ</b></summary>
 <br>
 
 <p align="center">
