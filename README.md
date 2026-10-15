@@ -5,7 +5,7 @@ go asian boy go ranma got moves😳
    https://github.com/user-attachments/assets/fd9dd18a-b470-40ba-a9cb-da9a33c995b8
 
 <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=‎ꫂ᭪݁།༙&color=CE2361&style=square&abbreviated=true" alt="Profile Views"/>
+   <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=‎ꫂ᭪݁།༙&color=D46C8F&style=square&abbreviated=true" alt="Profile Views"/>
 
  
 
